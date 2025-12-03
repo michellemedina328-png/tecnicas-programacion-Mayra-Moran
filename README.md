@@ -1,1 +1,0 @@
-# tecnicas-programacion-Mayra-Moran
